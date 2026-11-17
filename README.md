@@ -1,0 +1,2 @@
+# fisic
+físico fisiculturista turista
